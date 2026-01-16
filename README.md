@@ -1,0 +1,1 @@
+# Infografia_Guayaquilx16lkr
